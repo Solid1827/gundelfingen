@@ -1,6 +1,6 @@
 # Gundelfingen
 
-Hier befinden sich Links zu allen bekannten Chatgruppen. Beachte, dass die Aufnahme in eine Gruppe ggf von einem Admin genehmigt werden muss. Und bitte respektiere die jeweiligen Gruppenregeln.
+Hier befinden sich Links zu allen bekannten Chatgruppen/Mailinglisten/Channels o.ä.. Beachte, dass die Aufnahme in eine Gruppe ggf. von einem Admin genehmigt werden muss. Und bitte respektiere die jeweiligen Gruppenregeln.
 
 ## Themen
 ### Sport

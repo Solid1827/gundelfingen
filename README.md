@@ -8,7 +8,7 @@ Hier befinden sich Links zu allen bekannten Chatgruppen. Beachte, dass die Aufna
 Große TVG Gruppe (abteilungsübergreifend): 
 
 #### SUP
-
+Auf dr BrenzSUPn (& Donau) 🏄‍♂️🏄‍♀️🏄 https://chat.whatsapp.com/FdBVoJdNtNMBorPikKIVqM
 ### Kinder 
 ### Kultur 
 ### Wirtschaft

@@ -12,6 +12,10 @@ Auf dr BrenzSUPn (& Donau) 🏄‍♂️🏄‍♀️🏄 https://chat.whatsapp.
 ### Kinder 
 ### Kultur 
 ### Wirtschaft
+### Gundelfingen Allgemein
+https://signal.group/#CjQKINEq-cV1Gii8faFidhO302GjU5YWwh40mHp0xfcBH-PbEhDL21GZSGWIiqs1ZKhv8JF0
+
+---
 
 ## Straßen/Viertel
 

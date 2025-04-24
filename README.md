@@ -31,9 +31,9 @@ Ergänzend zu den oben genannten Kanälen, über die ihr ja direkt mit anderen i
 ### Stadt Gundelfingen
 https://www.instagram.com/stadtgundelfingendonau/
 ### Freiwillige Feuerwehr
-https://www.instagram.com/feuerwehr_gundelfingen_donau/<br>
-https://www.instagram.com/feuerwehr_echenbrunn_donau/<br>
-https://www.instagram.com/feuerwehr_peterswoerth/
+- https://www.instagram.com/feuerwehr_gundelfingen_donau/
+- https://www.instagram.com/feuerwehr_echenbrunn_donau/
+- https://www.instagram.com/feuerwehr_peterswoerth/
 ### TV Gundelfingen 
 https://www.instagram.com/tv_gundelfingen_1863/<br>
 https://www.instagram.com/tvg.handball/<br>

@@ -29,16 +29,16 @@ https://signal.group/#CjQKICCLpKsHUyRYsEWjhB_QIegpMed9TpBLKUMhSHSb3nhHEhA25BHNBb
 ## Social Media Accounts
 Ergänzend zu den oben genannten Kanälen, über die ihr ja direkt mit anderen in Kontakt treten könnt, hier noch einige interessante lokale Social Media Kanäle:
 ### Stadt Gundelfingen
-https://www.instagram.com/stadtgundelfingendonau/
+- https://www.instagram.com/stadtgundelfingendonau/
 ### Freiwillige Feuerwehr
 - https://www.instagram.com/feuerwehr_gundelfingen_donau/
 - https://www.instagram.com/feuerwehr_echenbrunn_donau/
 - https://www.instagram.com/feuerwehr_peterswoerth/
 ### TV Gundelfingen 
-https://www.instagram.com/tv_gundelfingen_1863/<br>
-https://www.instagram.com/tvg.handball/<br>
-https://www.instagram.com/tvg.turnen/
+- https://www.instagram.com/tv_gundelfingen_1863/<br>
+- https://www.instagram.com/tvg.handball/<br>
+- https://www.instagram.com/tvg.turnen/
 ### Stadtkapelle
-https://www.instagram.com/stadtkapelle_gundelfingen/
+- https://www.instagram.com/stadtkapelle_gundelfingen/
 ### Wirtschaftsvereinigung
-https://www.instagram.com/gundelfingen.erleben/   
+- https://www.instagram.com/gundelfingen.erleben/   

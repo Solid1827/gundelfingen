@@ -1,6 +1,7 @@
 # Gundelfingen
+Diese Liste soll alten und neuen Gundelfingern Orientierung geben, wo es bereits Möglichkeiten zum Austausch über gemeinsame Interessen bzw. zur Stärkung der Nachbarschaft gibt. Sie erhebt keinen Anspruch auf Vollständigkeit und darf gerne von anderen ergänzt werden (mit einem GitHub Konto kannst du Vorschläge machen).
 
-Hier befinden sich Links zu allen bekannten Chatgruppen/Mailinglisten/Channels o.ä.. Beachte, dass die Aufnahme in eine Gruppe ggf. von einem Admin genehmigt werden muss. Und bitte respektiere die jeweiligen Gruppenregeln.
+Du findest hier Links zu Chatgruppen/Mailinglisten/Channels o.ä.. Beachte, dass die Aufnahme in eine Gruppe ggf. von einem Admin genehmigt werden muss. Und bitte respektiere die jeweiligen Gruppenregeln.
 
 ## Themen
 ### Sport
@@ -21,3 +22,23 @@ https://signal.group/#CjQKINEq-cV1Gii8faFidhO302GjU5YWwh40mHp0xfcBH-PbEhDL21GZSG
 
 ### Nordstadt (Gänseiweg bis zum Bühl)
 https://signal.group/#CjQKICCLpKsHUyRYsEWjhB_QIegpMed9TpBLKUMhSHSb3nhHEhA25BHNBbxkP3U1uaczdjdJ
+
+
+---
+
+## Social Media Accounts
+Ergänzend zu den oben genannten Kanälen, über die ihr ja direkt mit anderen in Kontakt treten könnt, hier noch einige interessante lokale Social Media Kanäle:
+### Stadt Gundelfingen
+https://www.instagram.com/stadtgundelfingendonau/
+### Freiwillige Feuerwehr
+https://www.instagram.com/feuerwehr_gundelfingen_donau/
+https://www.instagram.com/feuerwehr_echenbrunn_donau/
+https://www.instagram.com/feuerwehr_peterswoerth/
+### TV Gundelfingen 
+https://www.instagram.com/tv_gundelfingen_1863/
+https://www.instagram.com/tvg.handball/
+https://www.instagram.com/tvg.turnen/
+### Stadtkapelle
+https://www.instagram.com/stadtkapelle_gundelfingen/
+### Wirtschaftsvereinigung
+https://www.instagram.com/gundelfingen.erleben/   

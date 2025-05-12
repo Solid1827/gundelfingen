@@ -6,7 +6,7 @@ Du findest hier Links zu Chatgruppen/Mailinglisten/Channels o.ä.. Beachte, dass
 ## Themen
 ### Sport
 #### TV Gundelfingen
-Große TVG Gruppe (abteilungsübergreifend): 
+Große Gruppe Handballabteilung: https://chat.whatsapp.com/DrAUJHO6sZtJkzFEXOsYCu
 
 #### SUP
 Auf dr BrenzSUPn (& Donau) 🏄‍♂️🏄‍♀️🏄 https://chat.whatsapp.com/FdBVoJdNtNMBorPikKIVqM
